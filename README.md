@@ -1,0 +1,2 @@
+# premium-leaf-scroll-001-leaf-scroll-forging-organic
+Tired of your leaf-scroll project ideas withering in scattered notes and forgotten folders? The Leaf Scroll Forging &amp; Organic Craft Hub for Notion is your forge—a single, living system that shapes raw inspiration into polished, scrollable workflows.  This template solves the chaos of managing multiple organic craft projects by providing a structure
